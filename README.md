@@ -28,7 +28,7 @@ The movie also shows how powerful memories, fate, and human connections can be.
 - The theme of fate and connection
 - The unforgettable relationship between Taki and Mitsuha
 
-### 🎵 Favorite Soundtrack
+### Favorite Soundtrack
 **Nandemonaiya** – RADWIMPS
 
 ### My Rating
